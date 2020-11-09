@@ -10,4 +10,4 @@
 - 😄 Pronouns: ... shrek bible
 - ⚡ Fun fact: ... shrek bible
 
-idek how to code
+i actually am god at code
